@@ -22,4 +22,4 @@
 
 点击任意入口，立即进入2025年最值得信赖的日本成人影片世界！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/thhh2611/riben11111111 ）</span> 
